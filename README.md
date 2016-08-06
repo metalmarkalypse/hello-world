@@ -1,2 +1,5 @@
 # hello-world
-My first internet abomination
+I thought I was actually fairly intelligent when it came to the PC World, but it's about as intense as trying to read brail while power sanding every fingertip, not to the bone or bleeding, but enough to cause friction and create the sensation of flaming fingertips. Np relation to The Flaming Lips.......however statistically speaking there HAS to be at LEAST one person who had burning finger tips at the same time The Flaming Lips made it big (By big, I'm comparing to a frigid asian boy about to spend his 5th birthday playing 'Pin the tea bag on the frozen lake til it melts then pretend Sean Connery lives in his testicles and he's on The Hunt for Red Cocktober' which plays by similar rules to getting your Red Wings, AND NO I DO NOT MEAN THE HOCKEY TEAM. URBAN DICTIONARY IT YOU TOOLS!
+
+I appologize for that outburst. Friends? Friends?! FRIENDS?!?! 
+Yeah, friends. Someone who isn't actually my freiend would NEVER fall asleep so hard that his non Sealy Posterpedic matress would be covered in red wine from all the tests I run while you snooze the night away. Sigh. Is this true love?
